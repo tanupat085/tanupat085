@@ -2,6 +2,8 @@
 # hi my name is aod (Tanupat satitvattana ) 17 years old currently studying in saengthongvitthya school :blush: ♥
 here is my github profile that i drop tons of my porject here THX
 
+![Tanupat Satitvattana](https://www.facebook.com/photo.php?fbid=584075625645058&set=a.106460630073229&type=3&theater)
+
 
 
 
