@@ -1,4 +1,15 @@
 ### Hi there 👋
+# hi my name is aod (Tanupat satitvattana ) 17 years old currently studying in saengthongvitthya school ♥
+here is my github profile that i drop ton of my porject here THX
+
+
+
+
+
+
+
+
+
 
 <!--
 **tanupat085/tanupat085** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
