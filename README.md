@@ -1,5 +1,5 @@
 ### Hi there 👋
-im aod (Tanupat satitvattana ) 17 years old currently studying in saengthongvitthya school :blush: ♥
+im aod (Tanupat satitvattana ) 18 years old currently studying in AMI-KMITL :blush: ♥
 here is my github profile that i dropped tons of my porject here THX ----
 <br>
 im a bigfan of -the self made
