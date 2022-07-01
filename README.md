@@ -1,5 +1,5 @@
 ### Hi there 👋
-im aod (Tanupat satitvattana ) 18 years old currently studying in AMI-KMITL :blush: ♥
+im aod (Tanupat satitvattana ) 19 years old currently studying in AMI-KMITL :blush: ♥
 here is my github profile that i dropped tons of my porject here THX ----
 <br>
 
